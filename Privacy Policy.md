@@ -1,6 +1,6 @@
 ## Privacy Policy
-
 **Last Updated: July 29, 2025**
+
 Thank you for using the Swipify app. This privacy policy explains how our app collects, uses, and protects your personal data.
 
 ### Our Data Collection Policy
