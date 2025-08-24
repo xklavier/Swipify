@@ -70,6 +70,6 @@ We may update this privacy policy from time to time. When there are significant 
 ### Contact
 If you have questions about this privacy policy:
 
-• Email: barisberkecetinn@gmail.com
+• Email: brsberkectn@gmail.com
 • Address: Türkiye
 • Response Time: Within 30 days
